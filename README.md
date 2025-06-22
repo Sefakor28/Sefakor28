@@ -1,5 +1,5 @@
 ## Hi there 👋
-## I’m currently learning how to navigate github:upside_down_face:
+## I’m currently learning how to navigate github🙃
 ##  How to reach me: You can contact me on antoinnette.dugbley@stu.ucc.edu.gh
 
 <!--
