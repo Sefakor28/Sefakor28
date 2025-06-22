@@ -1,4 +1,6 @@
 ## Hi there 👋
+## I’m currently learning how to navigate github:upside_down_face:
+##  How to reach me: You can contact me on antoinnette.dugbley@stu.ucc.edu.gh
 
 <!--
 **Sefakor28/Sefakor28** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
